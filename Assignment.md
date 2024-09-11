@@ -1,5 +1,5 @@
 ##BLUE SKY
-![Peanut Butter House]([https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reddit.com%2Fr%2FDonToliver%2Fcomments%2F1cjpzy2%2Fdon_toliver_needs_to_pull_a_ken_carson_cuz_this%2F&psig=AOvVaw2M8YWow363AHPwrG0J_gvm&ust=1726164811054000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLjT_Je_u4gDFQAAAAAdAAAAABAD)
+![PEANUTBUTTERHOUSE]([https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png "Logo Title Text 1"](https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fos3tiip7obyc1.jpeg&rdt=54100))
 Hmm, hmm-hmm, whoa, whoa
 Hahaha, yeah (hmm, hmm-hmm)
 No pressure on me, pressure on me, walkin', ain't no stressin', you see? (Hmm, hmm-hmm)
@@ -8,7 +8,7 @@ His own master, people talkin', uh-huh (hmm, hmm-hmm)
 Out my way, this blunt won't smoke itself, uh-huh (hmm, hmm-hmm)
 Listen close, I hear myself, the intuition, that's what I got (hmm, hmm-hmm)
 Many people wonderin' what's up with him, but do they know Scott? (Hmm, hmm-hmm)
-A fella with some new dreams and a sexy mama, uh-huh (hmm, hmm-hmm), I see, let's play
+A fella with some new dreams and a cool mama, uh-huh (hmm, hmm-hmm), I see, let's play
 The sky is blue, oh finally, been dreamin' of this for a while (yeah)
 The sun is shining, blinding, swimmin' in this place of mine (let's go)
 Help me out, pass that blunt, my guy
