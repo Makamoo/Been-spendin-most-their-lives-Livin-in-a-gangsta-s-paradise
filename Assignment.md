@@ -1,5 +1,7 @@
-##BLUE SKY
-![PEANUTBUTTERHOUSE]([https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png "Logo Title Text 1"](https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fos3tiip7obyc1.jpeg&rdt=54100))
+BLUE SKY
+
+![Hello](https://pbs.twimg.com/profile_images/1557821089509740545/bHpUzufH_400x400.jpg)
+
 Hmm, hmm-hmm, whoa, whoa
 Hahaha, yeah (hmm, hmm-hmm)
 No pressure on me, pressure on me, walkin', ain't no stressin', you see? (Hmm, hmm-hmm)
@@ -8,7 +10,7 @@ His own master, people talkin', uh-huh (hmm, hmm-hmm)
 Out my way, this blunt won't smoke itself, uh-huh (hmm, hmm-hmm)
 Listen close, I hear myself, the intuition, that's what I got (hmm, hmm-hmm)
 Many people wonderin' what's up with him, but do they know Scott? (Hmm, hmm-hmm)
-A fella with some new dreams and a cool mama, uh-huh (hmm, hmm-hmm), I see, let's play
+A fella with some new dreams and a sexy mama, uh-huh (hmm, hmm-hmm), I see, let's play
 The sky is blue, oh finally, been dreamin' of this for a while (yeah)
 The sun is shining, blinding, swimmin' in this place of mine (let's go)
 Help me out, pass that blunt, my guy
@@ -30,6 +32,6 @@ Help me out, pass that blunt, my guy
 We're all on a quest to climb, and we're on our way (yeah)
 Ooh-ooh-ooh, ooh-ooh, yeah, yeah
 No pressure on me, pressure on me, walkin', ain't no stressin', you see?
-They sayin' what they sayin', I'm just sayin', give no fucks what you think
+They sayin' what they sayin', I'm just sayin', give no fricks what you think
 His own master, people talkin', uh-huh
 Out my way, this blunt won't smoke itself, uh-huh
